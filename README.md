@@ -5,3 +5,5 @@ Visa Cash App Racing Bulls
 Stake Kick Sauber
 MoneyGram Haas
 ### Minha atualização
+É né negão?!
+Aguarde o processo de 20 mil conto padd
