@@ -7,3 +7,7 @@ MoneyGram Haas
 ### Minha atualização
 É né negão?!
 Aguarde o processo de 20 mil conto padd
+### cuzes gigantes
+do not search BBC
+PLEASE
+![image](https://assojuris.org.br/wp-content/uploads/2023/11/Sem-titulo-7.png)
